@@ -13,7 +13,7 @@
 
 - 💬 Pergunte-me sobre <strong>Videogame e Consoles</strong>
 </p>
-<p align="center">📫<b>Meus contatos</br></p>
+<p align="center">📫<b>@AdrianooCirimele</br></p>
 
 
 *************
