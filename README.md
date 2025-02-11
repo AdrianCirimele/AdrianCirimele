@@ -11,7 +11,7 @@
 
 - 👯 Procurando me aprofundar mais em programação.
 
-- 💬 Pergunte-me sobre <strong>Videogame e Consoles</strong>
+- 💬 Pergunte-me sobre <strong>Videogame, Carreira e Planos</strong>
 </p>
 <p align="center">📫<b>@AdrianooCirimele</br></p>
 
